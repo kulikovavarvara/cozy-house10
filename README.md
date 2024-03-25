@@ -1,2 +1,2 @@
-# cozy house9
-https://kulikovavarvara.github.io/cozy-house9/
+# cozy house10
+ https://kulikovavarvara.github.io/cozy-house10/
